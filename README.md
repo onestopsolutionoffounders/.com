@@ -1,1 +1,0 @@
-# onestopsolutionoffounders.github.io
